@@ -5,12 +5,12 @@
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-My name is Hazy, Maly or Eternal but i prefer you to call me Hazy, Maly!!
+My name is Hazy or Maly but i'd prefer you to call me Maly!!
 --> Or!!! You can call me wtv u like!!!!!
 
 [ Pronouns!! : They/them!!! ]
 
-don't ask about my age please, i'll tell you if i feel comfortable!!
+don't ask about my age please, i'll tell you if i feel comfortable enough!!
 
 I'm an introvert!! ( pls remember D: ) 
 
