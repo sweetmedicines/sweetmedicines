@@ -25,13 +25,13 @@ MY BIRTHDAY!! : May 30th :D
 
 Some fandom im in!!!!!!!
 
-Roblox games : Bad things, The moon I rot behind, Duality, Happy Wolrd With Happy People ( ^_^ ), Pupi Midnight Munchie, Forsaken(im thinking of leaving this fandom but wtv), Pressure, Block tales, Phighting!, Regretevator, Meleeniacs,...etc..
+Roblox games : Bad things, The moon I rot behind, Duality, Happy Wolrd With Happy People ( ^_^ ), Pupi Midnight Munchie,Grace, Pressure, Block tales, Phighting!, Regretevator, Meleeniacs,Nullscape,...etc..
 
-Roblox args : Seildirectory, itzskeet_playz, IHasAFaceLULZ, RecallAHollowHeart, brandon works,..etc..
+Roblox args : itzskeet_playz, IHasAFaceLULZ, RecallAHollowHeart, brandon works,..etc..
 
 Object Shows : Animatic Battles, Battle For Dream Island, The Nightly Manor, hfjONE, Its Time For The,...etc..
 
-Minecraft args : Searching for a world that doesnt exist, Unstable smp,...
+Minecraft Series: Searching for a world that doesnt exist, Unstable smp,...
 
 -> These are the fandoms i active the most!! ( still have lots of fandom but i cant remember all of it lol )
 
