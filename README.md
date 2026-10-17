@@ -8,7 +8,7 @@
 My name is Hazy, Maly or Eternal but i prefer you to call me Hazy, Maly!!
 --> Or!!! You can call me wtv u like!!!!!
 
-[ Pronous!! : They/them!!! ]
+[ Pronouns!! : They/them!!! ]
 
 don't ask about my age please, i'll tell you if i feel comfortable!!
 
